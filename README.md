@@ -1,0 +1,1 @@
+Azərbaycandakı uşaqlar üçün keçirilən Azercellcup yarışmasından götürülmüşdür.
